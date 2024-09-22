@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Hello, this is Rei. Welcome to my blog website. I am glad that someone does find my website, I bet you are just curious or want to know more about me, it doesn't really matter though. I write my daily diaries in this blog website and hopefully I can improve my English writing skills gradually. Stay tuned.
