@@ -1,4 +1,4 @@
-
+## Quite A Busy Sunday
 
 Hello, this is Rei. This is going to be my first diary record, there might be some gramatical issues but please bear with me. 
 I was struggling to complete the physics homework, which I shouldn't but wasted much time in the morning. It was quite frastrating. 
